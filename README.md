@@ -1,6 +1,6 @@
 - 👋 Hi, I’m imanni
 - 👀 I’m interested in ...changing my gmail password that i lost without phone number or other recovery 
-- 🌱 I’m currently learning ... to chack on my gmail account :))
+- 🌱 I’m currently learning ... to hack on my gmail account :))
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...imannimateo@gmail.com
 - 😄 Pronouns: ...
